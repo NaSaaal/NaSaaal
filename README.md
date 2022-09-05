@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning **Web developer Related Technology**
 - 📫 How to reach me: **naufalsalman1810@gmail.com**
-- ⚡ Fun fact: **I'm in Love whith the Moon** 
+- ⚡ Fun fact: **I'm in Love with the Moon** 
